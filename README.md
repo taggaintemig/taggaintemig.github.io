@@ -1,5 +1,7 @@
 # taggaintemig.github.io
 
+## [Barbro Westerholm skulle fnysa åt dagens liberaler](https://www.flamman.se/barbro-westerholm-skulle-fnysa-at-dagens-liberaler/)
+
 ## [Ytterhögerns påverkansarbete bär frukt](001.md)
 
 ## [Bevara Maria Queer](https://www.qx.se/samhalle/opinion/281261/eric-nilsson-om-det-okade-motstandet-bevara-maria-queer/)
