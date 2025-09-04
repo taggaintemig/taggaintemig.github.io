@@ -2,6 +2,8 @@
 
 ## [Side Track berättar om känslan att höra hemma](https://www.ottar.se/side-track-berattar-om-kanslan-att-hora-hemma/)
 
+## [Klart som moderat korvspad](002.md)
+
 ## [Barbro Westerholm skulle fnysa åt dagens liberaler](https://www.flamman.se/barbro-westerholm-skulle-fnysa-at-dagens-liberaler/)
 
 ## [Ytterhögerns påverkansarbete bär frukt](001.md)
