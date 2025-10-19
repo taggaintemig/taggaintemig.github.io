@@ -6,6 +6,8 @@
 
 ## [Klart som moderat korvspad](002.md)
 
+## [Öppet brev till Ung Vänster](https://www.qx.se/samhalle/opinion/290698/oppet-brev-till-ung-vanster-varfor-utmalar-ni-queers-som-sexuella-avarter/)
+
 ## [Barbro Westerholm skulle fnysa åt dagens liberaler](https://www.flamman.se/barbro-westerholm-skulle-fnysa-at-dagens-liberaler/)
 
 ## [Ytterhögerns påverkansarbete bär frukt](001.md)
