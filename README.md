@@ -1,5 +1,7 @@
 # taggaintemig.github.io
 
+## [Förhållningsregler för straighta, eller heterofiler hör upp!](https://www.expressen.se/debatt/debatt-straighta-ska-inte-hanga-pa-gaybarer/)
+
 ## [Hundrakilosmannen som jag kallar min pojkvän darrar som ett asplöv](https://www.ottar.se/hundrakilosmannen-som-jag-kallar-min-pojkvan-darrar-som-ett-asplov/)
 
 ## [Stockholms nattliv inpå skinnet](https://www.qx.se/noje/klubb-fest/15368130/eric-nilsson-om-stockholms-nattliv-inpa-skinnet/)
